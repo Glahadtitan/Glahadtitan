@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Glahadtitan
-- 👀 I’m interested in coding, soccer, art
+- 👀 I’m interested in coding
 - 🌱 I like coding and math
 - 📫 You can reach me on scratch https://scratch.mit.edu/users/Glahadtitan/
 
